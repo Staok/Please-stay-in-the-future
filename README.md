@@ -9,6 +9,8 @@ Science-fiction 《please stay in the future》
 -   知乎：https://zhuanlan.zhihu.com/p/145053546
 -   BiliBili：https://www.bilibili.com/read/cv6305018
 
+《请留在未来-彩蛋篇》为对正文中的彩蛋和致敬的幕后内容做摘选和说明。
+
 按：
 
 有时真的非常想写一些东西，写一些不一样的东西，这个小文费了不多也不少力气。
